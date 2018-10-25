@@ -1,2 +1,2 @@
-# 44106618
-i am a new one,this is my first step,and the most important
+＃44106618
+模式识别uoye 
